@@ -1,2 +1,2 @@
-# K.S-Studios
+# K.S Studios
 Advertise With Style!
